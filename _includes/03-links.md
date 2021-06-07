@@ -1,1 +1,1 @@
-[linkedInProfile](https://www.linkedin.com/in/joefreynoldsjr)
+[linkedInProfile](https://www.linkedin.com/in/joefreynoldsjr/)
