@@ -1,1 +1,1 @@
-![TuxByDistro](https://wallpapercave.com/wp/1X1twB3.jpg)
+![TuxLinuxEmptyBackdrop](https://cdn.wallpapersafari.com/69/66/w1h0xc.png)
