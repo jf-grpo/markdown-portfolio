@@ -1,1 +1,1 @@
-www.linkedin.com/in/joefreynoldsjr
+![linkedInProfile](www.linkedin.com/in/joefreynoldsjr)
